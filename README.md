@@ -1,1 +1,0 @@
-# newsquick0628
